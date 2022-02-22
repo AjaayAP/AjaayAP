@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ajaay_A_P
-- 👀 I’m interested in ... developing skills
+- 👀 I’m interested in ... 
 - 🌱 I’m currently learning ... b.Tech
 - 💞️ I’m looking to collaborate on ... work projects
 - 📫 How to reach me ... 
